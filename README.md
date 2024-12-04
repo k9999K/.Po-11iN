@@ -12,3 +12,4 @@ etc-
 +https://youtube.com/clip/UgkxPEe-itw0WliHSopo30yiFQJCo8-87k6s?si=31Qq3gLbDZ2ON9
 
   =$4000
+-[c7785d7f-0eb4-465d-a198-243b16d951e2]
